@@ -8,3 +8,6 @@ que advogava pelo fim da escravidão em nosso país.
 a Princesa Isabel assinou a Lei Áurea, abolindo a escravatura em nosso país.
   A trajetória dos ex-escravos libertos não foi fácil. Eles não tiveram direito à terra nem a qualquer tipo de indenização. Começaram a viver à margem da sociedade, iniciando a difícil trajetória da população preta após a abolição em nosso país. 
 Mesmo compondo uma comunidade em sua maioria pobre e marginalizada, a cultura negra, com suas ricas raízes africanas, continuou se desenvolvendo.
+
+
+![](https://github.com/Matheusserpa2008/ghost/assets/145783915/7831d890-ca76-4b0f-ba88-8337eb0d1d0c)
